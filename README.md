@@ -16,4 +16,5 @@
 
 ##
 Auxiliar de projetos elétricos(Eplan eletricP8)🧑📋🖥️, Eletricista montador🧑🏻‍🔧⚡, Cursando Tecnólogo em Manutenção de Aeronaves 🛠️✈️(2º Sem) e um entusiasta na área da programação👨‍💻🖥️.
+PE-BRASIL
 
